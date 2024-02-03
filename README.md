@@ -1,3 +1,1 @@
-Hello
-Aspiring computer person
-maybe I'll update this at some point
+Imperial computing student, don't really use this lol
