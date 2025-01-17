@@ -1,1 +1,1 @@
-Imperial computing student, don't really use this lol
+Imperial MEng Computing student
